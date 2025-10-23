@@ -1,1 +1,0 @@
-proisvolnoe soderjanie
